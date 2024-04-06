@@ -2,9 +2,10 @@
 Londonche is a Bulgarian children's choir, based in London.
 
 ## Next rehearsals
-
+** to be added **
 
 ## Next concerts
+** to be added **
 
 
 ## Information
