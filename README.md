@@ -1,5 +1,5 @@
 ## Next rehearsals
-** to be added **
+14 April 2pm, usual place
 
 ## Next concerts
 ** to be added **
