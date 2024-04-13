@@ -10,7 +10,3 @@ The choir was formed in 2023. It has performed at the Bulgarian Embassy in Londo
 
 Dessislava Stefanova, Radoslava Leseva-Adams
 
-## A bit
-
-### ANother bit
-spome stuff
