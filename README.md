@@ -1,4 +1,5 @@
 ## Next rehearsals
+
 21 April – location and time may change from ususal setting
 ---
 14 April 2pm, usual place
